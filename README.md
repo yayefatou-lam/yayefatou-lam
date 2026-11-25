@@ -1,4 +1,4 @@
-### Bonjour, je suis Yaye Fatou LAM
+### Bonjour, je suis Yaye Fatou LAM 👋🏿
 
 Étudiante en **Master 2 Mathématiques appliquées et Statistiques** à l'Université de Bordeaux, parcours IOSD (Image, Optimisation et Sciences des Données).
 
